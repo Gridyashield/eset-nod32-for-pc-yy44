@@ -1,4 +1,4 @@
-# 
+# Enhance ESET NOD32 for PC | ESET NOD32 for Windows with exclusive ESET NOD32 for PC | ESET NOD32 for Windows Plugin | sandboxing + anti-adware, the #1 plugin. Includes sandboxing
 
 
 
